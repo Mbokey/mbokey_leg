@@ -51,6 +51,4 @@ python2 mbo.py
 
 Cape hati ku selama ini berusaha untuk menjadi yang emm
 =======================================================
-
-
-
+<img src="kosred.com/a/whymxt.png"/>
